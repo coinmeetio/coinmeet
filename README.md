@@ -1,2 +1,2 @@
 CoinMeet is your passport to the crypto-galaxy, where the boundaries of traditional finance are pushed and new opportunities are created. Our platform is designed to provide you with the knowledge, skills, and insights needed to succeed in the ever-evolving world of blockchain and cryptocurrency. From beginner-friendly tutorials to advanced analysis and expert insights, we've got everything you need to stay ahead of the curve and achieve your financial goals. Join our community today and discover a world of limitless possibilities, where the power of blockchain and cryptocurrency can be harnessed to create a brighter financial future for all.
-# coinmeet
+For more information visit us on https://coinmeet.io/
